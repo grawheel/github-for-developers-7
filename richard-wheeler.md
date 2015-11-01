@@ -4,7 +4,7 @@
 
 ##From:## Marina, CA
 
-##Favorite Candy:## Peanut M&Ms
+##Favorite Candy:## Twix
 
 ##Hobby:## Playing video games
 
